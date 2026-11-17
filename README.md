@@ -1,1 +1,0 @@
-# Planejamento-de-pesquisa
